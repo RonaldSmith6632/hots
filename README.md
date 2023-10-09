@@ -16,4 +16,3 @@ Heroes of the Storm revolves around online 5-versus-5 matches, operated through 
 
 
 
-
